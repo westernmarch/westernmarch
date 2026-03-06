@@ -23,7 +23,7 @@
 
 <p align="center">This is a work in progress. 
 
-<p align="center">Please not my sites may be removed due to having to remake everything, due to my identity always changing which is so freakin' annoying.
+<p align="center">Please note my sites may be removed due to having to remake everything, due to my identity always changing which is so freakin' annoying.
 
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
