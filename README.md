@@ -1,7 +1,6 @@
 
-<p align="center"> My name is<img width="827" height="756" alt="image" src="https://github.com/user-attachments/assets/be10a349-953d-4d6f-aff5-6e99cc4f4216" />
-
-
+<p align="center"> My name is Wyatt / Cruor
+<p align="center"> You can also call me Georgia which is most prefered!
   
 <p align="center">|Check my Pro page for more names|
 
