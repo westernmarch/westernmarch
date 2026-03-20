@@ -4,7 +4,7 @@
 
 ⋮ ⌗ ┆ About me .
 
-♯ 4teen ﹕ 
+♯ teen ﹕ 
 
 ♯ Artist ﹕ self-taught ﹕ working on getting lessons.
 
