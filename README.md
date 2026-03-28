@@ -10,7 +10,7 @@ So many fishes in the sea so why can't one of them be mine ?."
 
 ⋮ ⌗ ┆ Notes
 
-♯ 
+♯ I'm very socially akward due to my horrible social anxiety and it affects many other things.
 
 ⋮ ⌗ ┆ Dni
 
