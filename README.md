@@ -21,3 +21,8 @@ So many fishes in the sea so why can't one of them be mine ?."
 ♯ I don't really have a dni expect I block freely, I gen love having friends/making them! 
 
 
+⋮ ⌗ ┆ Important 
+
+♯ I will be offline for a week or two, and I MIGHT get on PT if i'm able to, but don't expect anything.
+
+
