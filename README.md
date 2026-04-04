@@ -2,7 +2,9 @@
 
 ♯ 
 
-﹕ " Got the Hotel ringing at my doorbell again, again !."
+﹕ " Gotta let you know
+
+Your love has got me going like you couldn't imagine ."
 
 ♯
 
