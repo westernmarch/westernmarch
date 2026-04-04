@@ -2,8 +2,7 @@
 
 ♯ 
 
-﹕ " Throw me to the wolves 
-               Punish me for your sins ."
+﹕ " Got the Hotel ringing at my doorbell again, again !."
 
 ♯
 
