@@ -1,4 +1,5 @@
 heavy wip
 
 
-<img width="374" height="211" alt="gabriel-intro" src="https://github.com/user-attachments/assets/2ac8d9bd-136f-4ff9-a90a-fa49905a3700" />
+<img width="374" height="211" alt="image" src="https://github.com/user-attachments/assets/570a373d-0255-4129-b2a8-5db36a42541c" />
+
