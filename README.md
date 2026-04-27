@@ -1,11 +1,8 @@
 <p align="center"> ₊⊹🌻‧₊˚ ⋅ ⩩
 
 
-<p align="center"> " Go down, let's go down, let's go down 
-<p align="center">   Don't you wanna go dowm and wriggle on 
-  
-  <p align="center">  Have a sing along "
-  
+<p align="center"> " Oh, I'm sorry, I promise, I'd doing my best
+<p align="center">               I just haven't learned how to be human as you are yet "
 
 
 
