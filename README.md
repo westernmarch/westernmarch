@@ -24,6 +24,11 @@
 ‎
 <p align="center"> Car . Motorcyle enthuasist | I, of course am still learning .|
 
+                            ╱|、
+                          (˚ˎ 。7  
+                           |、˜〵          
+                          じしˍ,)ノ
+
 <p align="center"> .  
 <p align="center"> ₊⊹⛽‧₊˚ ⋅ ⩩
 <p align="center"> .
