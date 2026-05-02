@@ -21,4 +21,5 @@
 <p align="center"> Call me Dayz or West
 
 <p align="center"> Learning how to speak itlaian
-
+‎
+<p align="center"> Car . Motorcyle enthuasist | I, of course am still learning .|
