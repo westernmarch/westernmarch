@@ -24,6 +24,8 @@
 
 <p align="center"> 14 yr
 
+<p align="center"> I really want more friends so dont be shy n be my friend,, pretty please with a motorcycle on top
+
 <p align="center"> Learning how to speak itlaian
 ‎
 <p align="center"> Car . Motorcyle enthuasist | I, of course am still learning .|
