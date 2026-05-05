@@ -11,7 +11,7 @@
 <p align="center">  .
 
 <p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ . " Keep up, I'm too fa-ast, I'm too fa-a-ast
-<p align="center"> . Push my foot up on that pedal, then I'm gone (g-g-gone, g-g-gone, gone) 
+<p align="center"> . Push my foot up on that pedal, then I'm gone
 <p align="right"> . Keep up on my track, on my track
 <p align="left"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎ ‎ ‎ ‎ ‎ . Boy, I'll dust ya, keep my numbers goin' strong ."
 
