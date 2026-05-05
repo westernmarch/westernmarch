@@ -28,7 +28,7 @@
 
 <p align="center"> Learning how to speak Itlaian
 ‎
-<p align="center"> Car . F1 . GP . Motorcycle enthusiast | I, of course am still learning about it all .|
+<p align="center"> Car . F1 . MotoGP . Motorcycle enthusiast | I, of course am still learning about it all .|
 
 <p align="center"> .  
 <p align="center"> • ───────────────── •• ───────────────── •• ───────────────── •
