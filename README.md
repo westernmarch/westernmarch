@@ -1,6 +1,6 @@
 <p align="center"> 
   editing
-
+<p align="center"> 
   |
 
 <p align="center">
